@@ -1,1 +1,1 @@
-# teknoid-absensi-diagram
+DIAGRAM DOANG ISINYA
